@@ -1,3 +1,4 @@
 # Resume
-For All My Socail links Check this link 
-linktr.ee/AhmedMostafa447
+For All My social links Check this link 
+
+www.linktr.ee/AhmedMostafa447
